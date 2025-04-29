@@ -89,8 +89,7 @@ Passionate about technology and collaboration, with over 10 years of experience 
 
 - 📍 Corbera de Llobregat, Barcelona
 - 📧 martivictor83@gmail.com
-- 📱 +34 660 727 121
-- 💼 [LinkedIn](https://www.linkedin.com/in/your-profile/) <!-- Update with your LinkedIn profile -->
+- 💼 [LinkedIn](https://www.linkedin.com/in/www.linkedin.com/in/victor-marti)
 
 ---
 
